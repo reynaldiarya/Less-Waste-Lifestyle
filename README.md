@@ -1,2 +1,2 @@
-# reynaldiarya.github.io/less-waste-lifestyle
+# Less Waste Lifestyle
 Tugas Multimedia
